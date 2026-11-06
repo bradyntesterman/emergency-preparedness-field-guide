@@ -1,2 +1,1 @@
-# emergency-preparedness-field-guide
-emergency-preparedness-field-guide
+Download the PDF for the full guide
